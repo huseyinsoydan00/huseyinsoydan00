@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="640" src="https://c.tenor.com/1y8zDc-ll-EAAAAd/tenor.gif"  />
+<img align="right" height="150" src="https://i.imgflip.com/a0i9wh.gif"  />
 
 ###
 
